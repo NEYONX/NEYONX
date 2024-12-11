@@ -1,3 +1,4 @@
+
 Welcome to the - **_The ruined house_**
 
 - > `_I like to be called neyon or takumi if you are close to me you can call me any pronoun _`
@@ -6,7 +7,7 @@ Welcome to the - **_The ruined house_**
 ![image alt](https://github.com/NEYONX/B/blob/862596b10c3c38603ec6df8062f25e3bbf3780f2/bxcb6w.gif)
 - # I don't know why I wrote this because I'm just getting used to github🥰🔨💧# 
 
-![image alt](https://github.com/NEYONX/B/blob/862596b10c3c38603ec6df8062f25e3bbf3780f2/IMG_20241211_131828.jpg)
+![image alt](https://github.com/NEYONX/B/blob/862596b10c3c38603ec6df8062f25e3bbf3780f2/IMG_20241211_131828.jpg)![pony-town-But im sorry💧-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/c7311905-dbf4-486e-8bc1-01052c9303d9)
 **## . I really like his pony whose name I don't know!!?**
 
 <!---
