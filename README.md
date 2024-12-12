@@ -7,7 +7,7 @@
 - > `_I like to be called neyon or takumi if you are close to me you can call me any pronoun _`
 - **`I hate being bothered in games depends on your attitude don't tease me it's easy i will give you a ticket to eternal vacation island ☕`**
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
-
+- **_sometimes i act childish so don't ask any more questions ._._** -
   ![36c3be875d9049c897fb5ece9927dc0d](https://github.com/user-attachments/assets/81837ab8-47bd-4a12-8ff0-be2e3af436cf)
 
 <!---
