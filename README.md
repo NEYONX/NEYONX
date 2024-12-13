@@ -1,5 +1,7 @@
+![VID-20241213105842733-unscreen](https://github.com/user-attachments/assets/8260beac-0b2e-4742-a027-3f52093552e7)
+
+
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ)
-![VID-20241213105842733-unscreen](https://github.com/user-attachments/assets/49a105d1-73b0-4a02-abdc-d0a7ef5d0fc1)
 
 # Welcome to the - **_The ruined house_**
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/85a154da-b27d-4fbf-802a-efca647aa8ce)
