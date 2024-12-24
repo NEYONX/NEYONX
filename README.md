@@ -1,4 +1,4 @@
-![VID-20241213105842733-unscreen](https://github.com/user-attachments/assets/8260beac-0b2e-4742-a027-3f52093552e7)
+
 　　　　　　*　　　　　　　　　　　　　　　　　　.
 　　　　.　　　　.　　　⠀
 　　　　　　　　　　　.
