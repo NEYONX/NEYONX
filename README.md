@@ -1,5 +1,17 @@
 ![VID-20241213105842733-unscreen](https://github.com/user-attachments/assets/8260beac-0b2e-4742-a027-3f52093552e7)
-
+　　　　　　*　　　　　　　　　　　　　　　　　　.
+　　　　.　　　　.　　　⠀
+　　　　　　　　　　　.
+　　　　　　　
+　　　˚　　　　　　　　ﾟ　　　　　.
+　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
+　　　*　　⠀.
+　　　　　.　　　　　　　　　　⠀✦
+　˚　　　　　　　　　　　　　　*
+.⠀ 　　　　　　　　　　.　　　　　　　　.
+　　　　　✦⠀　   　　　,　　    　　　　　　　　.
+⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ)
 
@@ -13,7 +25,19 @@
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
 - **_sometimes i act childish so don't ask any more questions ._._** -
   ![36c3be875d9049c897fb5ece9927dc0d](https://github.com/user-attachments/assets/81837ab8-47bd-4a12-8ff0-be2e3af436cf)
-
+　　　　　　*　　　　　　　　　　　　　　　　　　.
+　　　　.　　　　.　　　⠀
+　　　　　　　　　　　.
+　　　　　　　
+　　　˚　　　　　　　　ﾟ　　　　　.
+　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
+　　　*　　⠀.
+　　　　　.　　　　　　　　　　⠀✦
+　˚　　　　　　　　　　　　　　*
+.⠀ 　　　　　　　　　　.　　　　　　　　.
+　　　　　✦⠀　   　　　,　　    　　　　　　　　.
+⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
 <!---
 NEYONX/NEYONX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
