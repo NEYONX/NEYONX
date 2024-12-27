@@ -13,7 +13,7 @@
 ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
 
-![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ)
+![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ+++&color=2f38ff)
 
 # Welcome to the - **_The ruined house_**
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/85a154da-b27d-4fbf-802a-efca647aa8ce)
