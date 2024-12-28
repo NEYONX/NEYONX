@@ -1,5 +1,4 @@
-
-　　　　　　*　　　　　　　　　　　　　　　　　　.
+uh oh i'm turning off the chat box because i don't communicate much with others..　　　　　　　　　　　　　　　.
 　　　　.　　　　.　　　⠀
 　　　　　　　　　　　.
 　　　　　　　
