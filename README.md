@@ -1,4 +1,4 @@
-uh oh i'm turning off the chat box because i don't communicate much with others..　　　　　　　　　　　　　　　.
+My pony town account has been flagged :(but even though I created another account it automatically merged into the same account??!💀😭😭💧　　　　　　　　　　　.
 　　　　.　　　　.　　　⠀
 　　　　　　　　　　　.
 　　　　　　　
