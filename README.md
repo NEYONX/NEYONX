@@ -1,4 +1,4 @@
-My pony town account has been flagged :(but even though I created another account it automatically merged into the same account??!💀😭😭💧　　　　　　　　　　　.
+　　　　　　　　.
 　　　　.　　　　.　　　⠀
 　　　　　　　　　　　.
 　　　　　　　
@@ -14,7 +14,7 @@ My pony town account has been flagged :(but even though I created another accoun
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=ฅ⁠^⁠•⁠ﻌ⁠•⁠^⁠ฅ+++&color=2f38ff)
 
-# here i have only cents and am gay and unemployed  trust me ;) _**
+# here i have only cents and am gay and unemployed  trust me
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/85a154da-b27d-4fbf-802a-efca647aa8ce)
 ![IMG_20241212_183505](https://github.com/user-attachments/assets/a6dfc4b3-7b5a-47a8-9e42-6cc27b147a89)
 ![IMG_20241212_183517](https://github.com/user-attachments/assets/eee2c1d0-8d0f-4c4c-a75c-74563681d037)
