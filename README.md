@@ -1,42 +1,35 @@
-　　　　　　　　.
-　　　　.　　　　.　　　⠀
-　　　　　　　　　　　.
-　　　　　　　
-　　　˚　　　　　　　　ﾟ　　　　　.
-　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
-　　　*　　⠀.
-　　　　　.　　　　　　　　　　⠀✦
-　˚　　　　　　　　　　　　　　*
-.⠀ 　　　　　　　　　　.　　　　　　　　.
-　　　　　✦⠀　   　　　,　　    　　　　　　　　.
-⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
+b i n c h i n l i n g
 
-![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=whyyoustalkerme🤨+++&color=2f38ff)
+![fe8d560e5bde44ccaa972d8a9c6b910d](https://github.com/user-attachments/assets/c61b6798-0dc7-4ae7-b9e9-dd676ba17787)![pony-town-Joxter papa w2i I sing-boop-sit-fixed-padded-ponyplush-4x (1)](https://github.com/user-attachments/assets/796714c7-cba5-47f9-b8d3-340e2cd53e60)
+ ⠀　　　　　　　　　　　　　　
+
+![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=stalker🔥+++&color=1fb349)
 
 # here i have only cents and am gay and unemployed  trust me
-![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/85a154da-b27d-4fbf-802a-efca647aa8ce)
-![IMG_20241212_183505](https://github.com/user-attachments/assets/a6dfc4b3-7b5a-47a8-9e42-6cc27b147a89)
-![IMG_20241212_183517](https://github.com/user-attachments/assets/eee2c1d0-8d0f-4c4c-a75c-74563681d037)
+![e0280f69b4d3188ae0d3725b2026a120](https://github.com/user-attachments/assets/78cf2817-5d1c-4904-97a0-57fe280eea0c)
+
 
 - > `_I like to be called takumi or neyon,and I don't have much interest in making conversation or sharing interests _`
-- **`I have a fragile heart if you're being rude you'll get a block and don't mess with me in the game ☕`**
-![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
-- **_sometimes i act childish so don't ask any more questions ._._** -
-  ![36c3be875d9049c897fb5ece9927dc0d](https://github.com/user-attachments/assets/81837ab8-47bd-4a12-8ff0-be2e3af436cf)
-　　　　　　*　　　　　　　　　　　　　　　　　　.
-　　　　.　　　　.　　　⠀
+- **`I have a fragile heart if you're being rude you'll get a block and don't mess with me in the game ☕`**![pony-town-Joxter papa w2i I sing-boop-lie-fixed-padded-ponyplush-4x](https://github.com/user-attachments/assets/48cbd2fc-ba9c-4c3b-8971-dcf37f390b30) update 3/25/2025
+
+- **_sometimes i act childish so don't ask any more questions ._._** 
+
+  　　　　　*　　　　　　　　　　　　　　　　　　.
+
+  　　.　　　　.　　　⠀
 　　　　　　　　　　　.
 　　　　　　　
-　　　˚　　　　　　　　ﾟ　　　　　.
+
+  　˚　　　　　　　　ﾟ　　　　　.
 　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
 　　　*　　⠀.
 　　　　　.　　　　　　　　　　⠀✦
-　˚　　　　　　　　　　　　　　*
+
+ ˚　　　　　　　　　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
-　　　　　✦⠀　   　　　,　　    　　　　　　　　.
-⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
+
+
+⠀⠀⠀⠀⠀⠀
 <!---
 NEYONX/NEYONX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
