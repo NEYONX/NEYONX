@@ -14,7 +14,7 @@ b i n c h i n l i n g
 ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　
  ⠀　　　　　　　　　　　　　　
 
-![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=stalker🔥+++&color=1fb349)
+![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=🌼+++&color=1fb349)
 
 # here i have only cents and am gay and unemployed  trust me
 ![e0280f69b4d3188ae0d3725b2026a120](https://github.com/user-attachments/assets/78cf2817-5d1c-4904-97a0-57fe280eea0c)
