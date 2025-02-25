@@ -10,7 +10,8 @@ b i n c h i n l i n g
 
 
 - > `_I like to be called takumi or neyon,and I don't have much interest in making conversation or sharing interests _`
-- **`I have a fragile heart if you're being rude you'll get a block and don't mess with me in the game ☕`**![pony-town-Joxter papa w2i I sing-boop-lie-fixed-padded-ponyplush-4x](https://github.com/user-attachments/assets/48cbd2fc-ba9c-4c3b-8971-dcf37f390b30) update 3/25/2025
+- **`I have a fragile heart if you're being rude you'll get a block and don't mess with me in the game ☕`**
+- ![pony-town-Joxter papa w2i I sing-boop-lie-fixed-padded-ponyplush-4x](https://github.com/user-attachments/assets/48cbd2fc-ba9c-4c3b-8971-dcf37f390b30) update 3/25/2025
 
 - **_sometimes i act childish so don't ask any more questions ._._** 
 
