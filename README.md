@@ -1,6 +1,17 @@
 b i n c h i n l i n g
 
-![fe8d560e5bde44ccaa972d8a9c6b910d](https://github.com/user-attachments/assets/c61b6798-0dc7-4ae7-b9e9-dd676ba17787)![pony-town-Joxter papa w2i I sing-boop-sit-fixed-padded-ponyplush-4x (1)](https://github.com/user-attachments/assets/796714c7-cba5-47f9-b8d3-340e2cd53e60)
+![fe8d560e5bde44ccaa972d8a9c6b910d](https://github.com/user-attachments/assets/c61b6798-0dc7-4ae7-b9e9-dd676ba17787)　　　　　*　　　　　　　　　　　　　　　　　　.
+　　　　.　　　　.　　　⠀
+　　　　　　　　　　　.
+　　　　　　　
+　　　˚　　　　　　　　ﾟ　　　　　.
+　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
+　　　*　　⠀.
+　　　　　.　　　　　　　　　　⠀✦
+　˚　　　　　　　　　　　　　　*
+.⠀ 　　　　　　　　　　.　　　　　　　　.
+　　　　　✦⠀　   　　　,　　    　　　　　　　　.
+⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　
  ⠀　　　　　　　　　　　　　　
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=stalker🔥+++&color=1fb349)
@@ -11,6 +22,18 @@ b i n c h i n l i n g
 
 - > `_I like to be called takumi or neyon,and I don't have much interest in making conversation or sharing interests _`
 - **`I have a fragile heart if you're being rude you'll get a block and don't mess with me in the game ☕`**
+　　　　　*　　　　　　　　　　　　　　　　　　.
+　　　　.　　　　.　　　⠀
+　　　　　　　　　　　.
+　　　　　　　
+　　　˚　　　　　　　　ﾟ　　　　　.
+　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
+　　　*　　⠀.
+　　　　　.　　　　　　　　　　⠀✦
+　˚　　　　　　　　　　　　　　*
+.⠀ 　　　　　　　　　　.　　　　　　　　.
+　　　　　✦⠀　   　　　,　　    　　　　　　　　.
+⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　
 - ![pony-town-Joxter papa w2i I sing-boop-lie-fixed-padded-ponyplush-4x](https://github.com/user-attachments/assets/48cbd2fc-ba9c-4c3b-8971-dcf37f390b30) update 3/25/2025
 
 - **_sometimes i act childish so don't ask any more questions ._._** 
