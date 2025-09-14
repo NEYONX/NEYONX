@@ -17,6 +17,7 @@
 　　　　　✦⠀　   　　　,　　    　　　　　　　　.
 ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
+<img width="521" height="573" alt="gHJbunm" src="https://github.com/user-attachments/assets/845c3c92-fdfd-417a-940a-989122969cda" />
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=whyyoustalkerme🤨+++&color=2f38ff)
 
