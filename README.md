@@ -15,9 +15,7 @@
 　˚　　　　　　　　　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦⠀　   　　　,　　    　　　　　　　　.
-⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀⣀
-
+⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=whyyoustalkerme🤨+++&color=2f38ff)
 
@@ -56,9 +54,7 @@
 　　　　　.　　　　　　　　　　⠀✦
 　˚　　　　　　　　　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
-　　　　　✦⠀　   　　　,　　    　　　　　　　　.
-⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀   
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠀⠀
+　　　　　✦⠀　   　　　,　　
 
 <!---
 NEYONX/NEYONX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
