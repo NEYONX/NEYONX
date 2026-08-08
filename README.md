@@ -35,17 +35,16 @@
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
 <p align="center">
   <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com/?font=Noto+Sans+KR&size=20&duration=4000&pause=1200&color=5B8CFF&center=true&vCenter=true&width=600&lines=%EB%82%B4+%EC%9D%B4%EB%A6%84%EC%9D%84+%ED%95%9C+%EB%B2%88%EB%A7%8C+%EB%8D%94+%EB%B6%88%EB%9F%AC%EC%A3%BC%EC%84%B8%EC%9A%94+%E2%98%BE;still+with+you+%E2%98%81;me+and+you+%C2%B7+rain">
+    <img src="https://readme-typing-svg.demolab.com/?font=DotGothic16&size=20&duration=4000&pause=1200&color=5B8CFF&center=true&vCenter=true&width=600&lines=%EB%82%B4+%EC%9D%B4%EB%A6%84%EC%9D%84+%ED%95%9C+%EB%B2%88%EB%A7%8C+%EB%8D%94+%EB%B6%88%EB%9F%AC%EC%A3%BC%EC%84%B8%EC%9A%94+%E2%98%BE;still+with+you+%E2%98%81;me+and+you+%C2%B7+rain">
+  </a>
+</p>
 
   <p align="center">
   <a href="https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7">
     <img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/4e47c195a7b46aabd07486585f4eceba.jpg" width="120">
   </a>
   <br>
-  <p align="center">
-  <a href="https://open.spotify.com/track/0eFMbKCRw8KByXyWBw8WO7">
-    <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=18&duration=4000&pause=1200&color=7189C4&center=true&vCenter=true&width=500&lines=Still+With+You+-+Jung+Kook">
-  </a>
+  <img src="https://readme-typing-svg.demolab.com/?font=Silkscreen&size=18&duration=4000&pause=1200&color=FF4D5A&center=true&vCenter=true&width=500&lines=Still+With+You+-+Jung+Kook">
 </p>
 
 
