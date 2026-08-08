@@ -20,6 +20,7 @@
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=🥀💌+++&color=2f38ff) 
 
+<img width="150" height="100" alt="d1c61028cbbb03bcc0285dab333e416a" src="https://github.com/user-attachments/assets/2d8bffef-56db-4527-82e7-a289c2729130" />
 
 
 
