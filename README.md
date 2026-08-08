@@ -17,7 +17,7 @@
 　　　　　✦⠀　   　　　,　　    　　　　　　　　.
 ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　
 
-![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=whyyoustalkerme🤨+++&color=2f38ff)
+![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=🫂+++&color=2f38ff)
 
 # there is nothing here
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/85a154da-b27d-4fbf-802a-efca647aa8ce)
