@@ -43,7 +43,7 @@
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
 <p align="center">
   <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com/?font=DotGothic16&size=20&duration=5000&pause=1200&color=5B8CFF&center=true&vCenter=true&width=600&lines=%EB%82%B4+%EC%9D%B4%EB%A6%84%EC%9D%84+%ED%95%9C+%EB%B2%88%EB%A7%8C+%EB%8D%94+%EB%B6%88%EB%9F%AC%EC%A3%BC%EC%84%B8%EC%9A%94+%E2%98%BE;still+with+you+%E2%98%81;me+and+you+%C2%B7+rain">
+    <img src="https://readme-typing-svg.demolab.com/?font=DotGothic16&size=20&duration=8000&pause=1200&color=5B8CFF&center=true&vCenter=true&width=600&lines=%EB%82%B4+%EC%9D%B4%EB%A6%84%EC%9D%84+%ED%95%9C+%EB%B2%88%EB%A7%8C+%EB%8D%94+%EB%B6%88%EB%9F%AC%EC%A3%BC%EC%84%B8%EC%9A%94+%E2%98%BE;still+with+you+%E2%98%81;me+and+you+%C2%B7+rain">
   </a>
 </p>
 
