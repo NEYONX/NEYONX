@@ -24,7 +24,12 @@
 
 
 
-![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/85a154da-b27d-4fbf-802a-efca647aa8ce)
+<div align="center" style="width:20%; overflow:hidden;">
+
+<img src="https://private-user-images.githubusercontent.com/167546491/395162941-2273e62f-14bc-46dc-8681-2172f2ccd40a.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODYyNDgwOTgsIm5iZiI6MTc4NjI0Nzc5OCwicGF0aCI6Ii8xNjc1NDY0OTEvMzk1MTYyOTQxLTIyNzNlNjJmLTE0YmMtNDZkYy04NjgxLTIxNzJmMmNjZDQwYS5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwODA5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDgwOVQwMzU2MzhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0yZmFiMWQ3NzcyNTM5YThmNmE5M2QwZWVkODhlYzYyYzdiNzQ1YWExMDY5Y2YwZWE1MmI3YTA1YzRhYmE4ZmJlJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.wPAfmzsk6z-ci0OPpp2CZvaf1Bb1Q_tiIfTQljGAUYI"
+     style="width:80%; max-width:none; display:block;">
+
+</div>
 
 
 ![IMG_20241212_183505](https://github.com/user-attachments/assets/a6dfc4b3-7b5a-47a8-9e42-6cc27b147a89)
@@ -40,7 +45,12 @@
   
 </p>
 
-![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
+<div align="center" style="width:50%; overflow:hidden;">
+
+<img src="https://private-user-images.githubusercontent.com/167546491/395162941-2273e62f-14bc-46dc-8681-2172f2ccd40a.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODYyNDgwOTgsIm5iZiI6MTc4NjI0Nzc5OCwicGF0aCI6Ii8xNjc1NDY0OTEvMzk1MTYyOTQxLTIyNzNlNjJmLTE0YmMtNDZkYy04NjgxLTIxNzJmMmNjZDQwYS5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwODA5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDgwOVQwMzU2MzhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0yZmFiMWQ3NzcyNTM5YThmNmE5M2QwZWVkODhlYzYyYzdiNzQ1YWExMDY5Y2YwZWE1MmI3YTA1YzRhYmE4ZmJlJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.wPAfmzsk6z-ci0OPpp2CZvaf1Bb1Q_tiIfTQljGAUYI"
+     style="width:80%; max-width:none; display:block;">
+
+</div>
 <p align="center">
   <a href="https://git.io/typing-svg">
     <img src="https://readme-typing-svg.demolab.com/?font=DotGothic16&size=20&duration=8000&pause=1200&color=5B8CFF&center=true&vCenter=true&width=600&lines=%EB%82%B4+%EC%9D%B4%EB%A6%84%EC%9D%84+%ED%95%9C+%EB%B2%88%EB%A7%8C+%EB%8D%94+%EB%B6%88%EB%9F%AC%EC%A3%BC%EC%84%B8%EC%9A%94+%E2%98%BE;still+with+you+%E2%98%81;me+and+you+%C2%B7+rain">
@@ -56,7 +66,12 @@
 </p>
 
 
-![36c3be875d9049c897fb5ece9927dc0d](https://github.com/user-attachments/assets/81837ab8-47bd-4a12-8ff0-be2e3af436cf)
+<div align="center" style="width:30%; overflow:hidden;">
+
+<img src="https://github.com/user-attachments/assets/81837ab8-47bd-4a12-8ff0-be2e3af436cf"
+     style="width:100%; max-width:none; display:block;">
+
+</div>
 .　　　　　　　
  　　　˚　　　　　　　　　　.　　　　　　　
 　　　　　　*　　　　　　　　　　　˚
