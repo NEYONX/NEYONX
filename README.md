@@ -18,7 +18,7 @@
 ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　
 
 
-![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=🥀💌+++&color=2f38ff) 
+![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=🥀💌+++&color=1E2A5A) 
 
 <img width="150" height="100" alt="d1c61028cbbb03bcc0285dab333e416a" src="https://github.com/user-attachments/assets/2d8bffef-56db-4527-82e7-a289c2729130" />
 
@@ -30,8 +30,16 @@
 ![IMG_20241212_183505](https://github.com/user-attachments/assets/a6dfc4b3-7b5a-47a8-9e42-6cc27b147a89)
 ![IMG_20241212_183517](https://github.com/user-attachments/assets/eee2c1d0-8d0f-4c4c-a75c-74563681d037)
 
-- > `_I like to be called takumi or neyon,and I don't have much interest in making conversation or sharing interests _`
-- **`I have a fragile heart if you're being rude you'll get a block and don't mess with me in the game ☕`**
+<p align="center">
+
+  <img src="https://readme-typing-svg.demolab.com/?font=Silkscreen&size=17&duration=4000&pause=1200&color=5B8CFF&center=true&vCenter=true&width=700&lines=I+don't+really+like+making+conversation;I'm+not+very+interested+in+sharing+my+interests+either">
+
+  <br>
+
+  <img src="https://readme-typing-svg.demolab.com/?font=Silkscreen&size=17&duration=4000&pause=1200&color=FF4D5A&center=true&vCenter=true&width=700&lines=And+Please+dont+copy+my+Ponie;Please+don't+be+rude+to+me+or+mess+with+me+in-game">
+  
+</p>
+
 ![a614736f2f9248f2bf129526ca8e4de9](https://github.com/user-attachments/assets/2273e62f-14bc-46dc-8681-2172f2ccd40a)
 <p align="center">
   <a href="https://git.io/typing-svg">
@@ -49,17 +57,17 @@
 
 
 ![36c3be875d9049c897fb5ece9927dc0d](https://github.com/user-attachments/assets/81837ab8-47bd-4a12-8ff0-be2e3af436cf)
-.　　　　　　　✦
-　　　˚　　　　　　　　　　.　　　　　　　
+.　　　　　　　
+ 　　　˚　　　　　　　　　　.　　　　　　　
 　　　　　　*　　　　　　　　　　　˚
 　.　　　　　　　　　𖦹　　　　　　　　　　
 　　　　　　　　　　　　.　　　　　✧　　　
-　　　✦　　　　　.　　　　　　　　　　　　
-　　　　　　　　˚　　　　　　　.　　　　　
+　　　　　　　.　　　　　　　　　　　　
+  　　　　　　　　˚　　　　　　　.　　　　　
 　　.　　　　　　　　　　　　　　*　　　　
 　　　　　　　　　　.　　　　　　　　　　
 　˚　　　　　✧　　　　　　　　　　　.　　　
-　　　　　.　　　　　　　　𖥔　　　　　　　
+　. 　　　　.　　　　　　　　𖥔　　　　　　　
 　　　　　　　　　　˚　　　　　　　　　　
 　　*　　　　　　　　　　.　　　　　　✦
 　　　　　　.　　　　　　　　　　˚　　　　
