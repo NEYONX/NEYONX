@@ -26,7 +26,7 @@
 
 <div align="center" style="width:20%; overflow:hidden;">
 
-<img src="https://private-user-images.githubusercontent.com/167546491/395162941-2273e62f-14bc-46dc-8681-2172f2ccd40a.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODYyNDgwOTgsIm5iZiI6MTc4NjI0Nzc5OCwicGF0aCI6Ii8xNjc1NDY0OTEvMzk1MTYyOTQxLTIyNzNlNjJmLTE0YmMtNDZkYy04NjgxLTIxNzJmMmNjZDQwYS5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwODA5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDgwOVQwMzU2MzhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0yZmFiMWQ3NzcyNTM5YThmNmE5M2QwZWVkODhlYzYyYzdiNzQ1YWExMDY5Y2YwZWE1MmI3YTA1YzRhYmE4ZmJlJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.wPAfmzsk6z-ci0OPpp2CZvaf1Bb1Q_tiIfTQljGAUYI"
+<img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/395158383-85a154da-b27d-4fbf-802a-efca647aa8ce.gif"
      style="width:80%; max-width:none; display:block;">
 
 </div>
@@ -47,7 +47,7 @@
 
 <div align="center" style="width:50%; overflow:hidden;">
 
-<img src="https://private-user-images.githubusercontent.com/167546491/395162941-2273e62f-14bc-46dc-8681-2172f2ccd40a.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODYyNDgwOTgsIm5iZiI6MTc4NjI0Nzc5OCwicGF0aCI6Ii8xNjc1NDY0OTEvMzk1MTYyOTQxLTIyNzNlNjJmLTE0YmMtNDZkYy04NjgxLTIxNzJmMmNjZDQwYS5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwODA5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDgwOVQwMzU2MzhaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0yZmFiMWQ3NzcyNTM5YThmNmE5M2QwZWVkODhlYzYyYzdiNzQ1YWExMDY5Y2YwZWE1MmI3YTA1YzRhYmE4ZmJlJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.wPAfmzsk6z-ci0OPpp2CZvaf1Bb1Q_tiIfTQljGAUYI"
+<img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/395158383-85a154da-b27d-4fbf-802a-efca647aa8ce.gif"
      style="width:80%; max-width:none; display:block;">
 
 </div>
@@ -66,10 +66,10 @@
 </p>
 
 
-<div align="center" style="width:30%; overflow:hidden;">
+<div align="center" style="width:20%; overflow:hidden;">
 
-<img src="https://private-user-images.githubusercontent.com/167546491/633359442-38c38e69-98d3-46f0-be73-602b7a73298b.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODYyNDk2MzIsIm5iZiI6MTc4NjI0OTMzMiwicGF0aCI6Ii8xNjc1NDY0OTEvNjMzMzU5NDQyLTM4YzM4ZTY5LTk4ZDMtNDZmMC1iZTczLTYwMmI3YTczMjk4Yi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwODA5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDgwOVQwNDIyMTJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1lODUzYTYyOWJjYTBhODQ2ODE5ZDYyMDA5Nzc1NmIxNmQ5MDQ1YjI0ZWJmNDMxYWE5YjM1OTFlM2ViMDI2N2UxJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.P1lHkYBxpdd7-_uGxOIB9AUTiDOmtkuYdYKXKc40ZSI"
-     style="width:100%; max-width:none; display:block;">
+<img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/rain_blue_fixed.gif"
+     style="width:80%; max-width:none; display:block;">
 
 </div
 
