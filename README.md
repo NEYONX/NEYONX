@@ -20,8 +20,9 @@
 
 ![](https://komarev.com/ghpvc/?username=yourNEYONX-github-username&label=🥀💌+++&color=1E2A5A) 
 
-<img width="100" height="90" alt="usagi_transparent_fixed" src="https://github.com/user-attachments/assets/b7068b7f-deed-415c-bc6e-e3e82a1693f1"/>
-
+<a href="https://silly3.atabook.org/">
+  <img src="https://raw.githubusercontent.com/NEYONX/NEYONX/79a43ff7c7f0679a1eefd4523ebd5e82f561b648/usagi_transparent_fixed.gif" width="100">
+</a> atabok<---
 
 
 <div align="center" style="width:20%; overflow:hidden;">
