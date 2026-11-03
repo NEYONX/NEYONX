@@ -22,7 +22,7 @@
 
 <a href="https://silly3.atabook.org/">
   <img src="https://raw.githubusercontent.com/NEYONX/NEYONX/79a43ff7c7f0679a1eefd4523ebd5e82f561b648/usagi_transparent_fixed.gif" width="100">
-</a> atabok<---
+</a> <---atabok
 
 
 <div align="center" style="width:20%; overflow:hidden;">
