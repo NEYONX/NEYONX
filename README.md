@@ -1,6 +1,9 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/2238_cleaned.gif" width="900" height="200">
 
 
+![](https://komarev.com/ghpvc/?username=NEYONX&label=Profile+View+%F0%9F%8C%9E&color=FBB91A&style=flat-square)
+
+
 <table width="100%">
 <tr>
 <td width="75%" height="300" valign="top">
