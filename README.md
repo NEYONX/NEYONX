@@ -20,9 +20,8 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflowers_transparent.gif" width="150">
 </td>
 <td valign="middle" align="left">
-<img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=18&color=FAC231&duration=4000&pause=1000&width=210&lines=As+long+as+we%27re+together%2C+everything+is+fun.&repeat=true">
+<img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=18&color=FAC231&duration=4000&pause=1000&width=200&height=70&lines=As+long+as+we%27re+together%2C;everything+is+fun.&repeat=true">
 </td>
-</tr>
 
 <tr>
 <td valign="bottom" align="left">
