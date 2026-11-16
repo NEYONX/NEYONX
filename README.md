@@ -39,6 +39,7 @@
 </td>
 </tr>
 </table>
+<img src="Không Có Tiêu Đề81_20261116162417.png" width="900" height="236">
 
 
 
@@ -85,8 +86,7 @@
 
 
 
-
-
+<img src="Không Có Tiêu Đề81_20261116162632.png" width="900" height="236">
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflower_transparent_clean.gif" width="900" height="236">
 
 
