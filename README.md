@@ -3,21 +3,18 @@
 <table width="100%">
 <tr>
 <td width="75%" height="300" valign="top">
-
 <p align="left">
-<img src="LINK_STICKER_1" width="110">
+<img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflowers_transparent.gif" width="150">
 </p>
-
 <br><br><br><br>
-
 <p align="left">
-<img src="LINK_STICKER_2" width="75">
+<img src="https://github.com/NEYONX/Taekook/blob/NEYONX/IMG_20261115_031532.png" width="170">
 </p>
 
 </td>
 
-<td width="25%" align="center" valign="middle">
-<img src="LINK_STICKER_CAT" width="130">
+<td width="150%" align="center" valign="middle">
+<img src="https://github.com/NEYONX/Taekook/blob/NEYONX/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%8179_20261116090700.png" width="900">
 </td>
 </tr>
 </table>
