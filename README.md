@@ -16,7 +16,7 @@
 
 <table width="%">
 <tr>
-<td width="420" valign="top" align="left">
+<td width="175" valign="top" align="left">
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflowers_transparent.gif" width="150">
 </td>
 <td valign="middle" align="left">
