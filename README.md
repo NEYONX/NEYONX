@@ -11,7 +11,7 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflowers_transparent.gif" width="150">
 </td>
 <td valign="middle" align="left">
-<img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=15&color=DDBF83&duration=3500&pause=1200&width=260&lines=As+long+as+we%27re+together%2C+everything+is+fun.&repeat=true">
+<img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&size=18&color=DDBF83&duration=4000&pause=1000&width=210&lines=As+long+as+we%27re+together%2C+everything+is+fun.&repeat=true">
 </td>
 </tr>
 
@@ -20,7 +20,7 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/IMG_20261115_031532.png" width="170">
 </td>
 <td valign="middle" align="left">
-<img src="https://readme-typing-svg.demolab.com?font=Gowun+Dodum&size=14&color=B86B68&duration=3500&pause=1200&width=230&lines=This+is+my+friend%2C+Jungkook%3B%EB%82%98+%EA%B7%B8%EB%83%A5+%EC%B9%9C%EA%B5%AC%EC%95%BC%3F&repeat=true">
+<img src="https://readme-typing-svg.demolab.com?font=Gowun+Dodum&size=20&color=B86B68&duration=6000&pause=900&width=200&lines=This+is+my+friend%2C+Jungkook%3B%EB%82%98+%EA%B7%B8%EB%83%A5+%EC%B9%9C%EA%B5%AC%EC%95%BC%3F&repeat=true">
 </td>
 </tr>
 </table>
