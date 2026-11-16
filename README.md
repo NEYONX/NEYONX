@@ -1,7 +1,13 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/2238_cleaned.gif" width="900" height="200">
+<p>
+  <img src="https://komarev.com/ghpvc/?username=NEYONX&label=Profile+View+%F0%9F%8C%9E&color=FBB91A&style=flat-square" valign="middle">
 
+  <a href="https://silly3.atabook.org">
+    <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/1c8ccabd5708f03_file_000000006f148211b8d80ea3f3f63ebf_speed_0.75.gif?raw=true" width="85" valign="middle">
 
-![](https://komarev.com/ghpvc/?username=NEYONX&label=Profile+View+%F0%9F%8C%9E&color=FBB91A&style=flat-square)
+<a href="https://silly3.atabook.org">
+  <img src="https://img.shields.io/badge/👈🏻%20𝓼signata-F6C96B?style=flat-square&labelColor=F6C96B&color=F6C96B">
+</a>
 
 
 <table width="100%">
