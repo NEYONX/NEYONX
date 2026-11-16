@@ -1,4 +1,4 @@
-<img src="https://github.com/NEYONX/Taekook/blob/NEYONX/2238_cleaned.gif" width="900" height="200">
+<img src="tải xuống.gif" width="900" height="236">
 <p>
   <img src="https://komarev.com/ghpvc/?username=NEYONX&label=Profile+View+%F0%9F%8C%9E&color=2D1D14&style=flat-square" valign="middle">
 
@@ -88,7 +88,7 @@
 
 
 
-<img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflower_transparent_clean.gif" width="900" height="200">
+<img src="https://github.com/NEYONX/Taekook/blob/NEYONX/sunflower_transparent_clean.gif" width="900" height="236">
 
 
 
