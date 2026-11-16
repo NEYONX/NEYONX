@@ -1,6 +1,26 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/2238_cleaned.gif" width="900" height="200">
-<img src="sunflowers_transparent.gif" width="150" height="150">
-<img src="IMG_20261115_031532.png" width="150" height="150">
+
+<table width="100%">
+<tr>
+<td width="75%" height="300" valign="top">
+
+<p align="left">
+<img src="LINK_STICKER_1" width="110">
+</p>
+
+<br><br><br><br>
+
+<p align="left">
+<img src="LINK_STICKER_2" width="75">
+</p>
+
+</td>
+
+<td width="25%" align="center" valign="middle">
+<img src="LINK_STICKER_CAT" width="130">
+</td>
+</tr>
+</table>
 
 
 
