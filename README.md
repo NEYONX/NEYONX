@@ -1,6 +1,6 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/2238_cleaned.gif" width="900" height="300">
-
-
+<img src="sunflowers_transparent.gif" width="150" height="150">
+<img src="IMG_20261115_031532.png" width="150" height="150">
 
 
 
