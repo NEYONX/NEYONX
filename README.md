@@ -4,11 +4,11 @@
 <img src="https://img.shields.io/badge/🌞%20Profile%20View-2D1D14?style=flat-square&labelColor=2D1D14&color=2D1D14" align="middle"><img src="https://komarev.com/ghpvc/?username=NEYONX&label=&color=FEC966&style=flat-square" align="middle">
  <a href="https://silly3.atabook.org">
 <img   src="https://github.com/NEYONX/Taekook/blob/NEYONX/1c8ccabd5708f03_file_000000006f148211b8d80ea3f3f63ebf_speed_0.75.gif?raw=true" width="85" valign="middle">
-<a href="https://silly3.atabook.org">
-  <img src="https://img.shields.io/badge/👈🏻%20𝓼signata-FEC966?style=flat-square&labelColor=2D1D14&color=FEC966">
+<a href="https://silly3.atabook.org"><img src="https://img.shields.io/badge/👈🏻%20𝓼signata-FEC966?style=flat-square&labelColor=2D1D14&color=FEC966">
 </a>
-
-
+<img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/654cc72e692ce35ce471026ce2d3ac8b.gif" width="90" height="100">
+<img   
+<img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/4205daee560538324c77c6e903662e18.gif" width="85" height="100">
 <table width="100%">
 <tr>
 <td width="75%" height="300" valign="top">
