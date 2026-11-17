@@ -28,7 +28,7 @@
 <img src="https://github.com/NEYONX/Taekook/blob/NEYONX/IMG_20261115_031532.png" width="170">
 </td>
 <td valign="middle" align="left">
-<img src="https://readme-typing-svg.demolab.com?font=Gowun+Dodum&size=20&color=8E5127&duration=6000&pause=900&width=200&lines=This+is+my+friend%2C+Jungkook%3B%EB%82%98+%EA%B7%B8%EB%83%A5+%EC%B9%9C%EA%B5%AC%EC%95%BC%3F&repeat=true">
+<img src="https://readme-typing-svg.demolab.com?font=Gowun+Dodum&size=20&color=E5A01D&duration=6000&pause=900&width=200&lines=This+is+my+friend%2C+Jungkook%3B%EB%82%98+%EA%B7%B8%EB%83%A5+%EC%B9%9C%EA%B5%AC%EC%95%BC%3F&repeat=true">
 </td>
 </tr>
 </table>
