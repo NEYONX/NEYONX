@@ -6,8 +6,8 @@
 <img   src="https://github.com/NEYONX/Taekook/blob/NEYONX/1c8ccabd5708f03_file_000000006f148211b8d80ea3f3f63ebf_speed_0.75.gif?raw=true" width="85" valign="middle">
 <a href="https://silly3.atabook.org"><img src="https://img.shields.io/badge/👈🏻%20𝓼signata-FEC966?style=flat-square&labelColor=2D1D14&color=FEC966">
 </a>
-<img src="https://github.com" width="90" height="100">
-<img src="https://github.com" width="85" height="100">
+<img src="654cc72e692ce35ce471026ce2d3ac8b.gif" width="75" height="100">
+<img src="50c7037b50fdb9b7741a6b0c5319c6e3.gif" width="75" height="100">
 <img src="https://github.com/NEYONX/NEYONX/blob/NEYONX/4205daee560538324c77c6e903662e18.gif" width="65" height="100">
    
 <table width="100%">
